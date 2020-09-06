@@ -1,1 +1,0 @@
-# arikogym.github.io
